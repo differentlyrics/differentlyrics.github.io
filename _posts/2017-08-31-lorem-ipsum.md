@@ -4,8 +4,68 @@ title: "Lorem Ipsum"
 tags: tag1 tag2 tag3 tag4
 ---
 
-## Lorem Ipsum
+## Queen - Bohemian Rhapsody (happy)
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Proin enim nibh, suscipit sed rhoncus quis, blandit quis sapien. Ut congue pharetra rhoncus. Praesent finibus vitae urna quis cursus. Proin mollis elementum sapien, vitae viverra magna tincidunt a. Nullam tincidunt interdum dui ut ultricies. Maecenas pellentesque tellus ac mauris faucibus elementum. Nulla quis risus aliquam, pharetra neque non, dapibus augue. Vestibulum ante ipsum primis in faucibus orci luctus et ultrices posuere cubilia Curae; Cras ullamcorper lacinia augue in placerat. Suspendisse lacinia massa id blandit varius. Mauris ultricies ultricies bibendum.  
+Is this the real life, is this just fantasy?  
+Caught in a landslide no escape from reality  
+Open your eyes look up to the skies and see  
+I'm just a cowboy, but I have sympathy  
 
-Mauris eu lectus fermentum leo dictum hendrerit. Maecenas vel leo sit amet quam laoreet consequat vitae nec eros. Curabitur eleifend eu orci quis consectetur. Sed pretium tortor at consequat tincidunt. Nullam a tellus faucibus, dapibus tortor eget, ullamcorper metus. Aenean at aliquet metus. Aenean molestie metus rutrum, tincidunt nulla quis, tincidunt lorem. Morbi diam sem, rutrum vitae convallis eget, dignissim semper lacus. Curabitur ipsum diam, tincidunt in hendrerit sit amet, luctus vitae dui. Lorem ipsum dolor sit amet, consectetur adipiscing elit.
+Because I'm easy come, easy go  
+A little high, little low  
+Anyway the wind blows  
+Doesn't really matter to me, to me  
+
+Mama, just billed a man  
+Put a gun against his head  
+Pulled my trigger, now he's dead  
+Mama, life had just begun  
+But now I've gone and thrown it all away  
+
+Mama, ooh, ooh  
+Didn't mean to make you cry  
+If I'm not back again this time tomorrow  
+Carry on, carry on as if nothing really matters  
+
+Too late, my time has come  
+Sends shivers down my spine  
+Body's aching all the time  
+Goodbye everybody, I've got to go  
+
+Gotta leave you all behind and face the truth  
+Mama, ooh (anyway the wind blows) I don't want to die  
+I sometimes wish I'd never been born at all  
+
+I see a little silhouette of a man  
+Scaramouch, scaramouch will you do the fandango  
+Thunderbolt and lightning, very, very frightening me  
+Gallileo, Gallileo, Gallileo, Gallileo,  
+Gallileo Figaro magnifico  
+
+But I'm just a poor boy and nobody loves me  
+He's just a poor boy from a poor family  
+Spare him his life from this monstrosity  
+Easy come easy go will you let me go  
+
+Bismillah, no we will not let you go, let him go  
+Bismillah, we will not let you go, let him go  
+Bismillah, we will not let you go, let me go  
+
+Will not let you go, let me go (never)  
+Never let you go, let me go  
+Never let me go, ooh  
+No, no, no, no, no, no, no  
+
+Oh mama mia, mama mia, mama mia let me go  
+Beelzebub has a devil put aside for me  
+For me, for me  
+
+So you think you can stone me and spit in my eye  
+So you think you can love me and leave me to die  
+Oh baby, can't do this to me baby  
+Just gotta get out, just gotta get right outta here  
+
+Ooh yeah, ooh yeah nothing really matters  
+Anyone can see nothing really matters  
+Nothing really matters to me  
+Anyway the wind blows  

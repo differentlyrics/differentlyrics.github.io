@@ -1,11 +1,9 @@
-# Windows 95 Theme for Jekyll
+# Different lyrics
 
-![ss](https://github.com/h01000110/windows-95/raw/gh-pages/screenshot_2.png)
+Have you ever been haunted by a song with lyrics that are not... well... fitting your mood, personality or IQ levels. 
+Here is a place that offers free alternative lyrics for some of the popular and/or catchy songs. 
 
-Homepage: [Windows 95](https://h01000110.github.io/20170917/windows-95)
 
-Demo: [Click here](https://h01000110.github.io/windows-95/)
+Parody is in most cases considered fair use. In case of any complaints, please contact the owner of the repository. 
 
-Author: [h01000110 (hi)](https://github.com/h01000110)
-
-License: [MIT](https://github.com/h01000110/windows-95/blob/master/LICENSE)
+[Theme](https://github.com/h01000110/windows-95) by [h01000110 (hi)](https://github.com/h01000110)
